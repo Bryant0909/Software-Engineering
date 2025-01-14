@@ -10,4 +10,8 @@ Zhu Xuefei, ft24227@bristol.ac.uk, muler-hussel
 
 Pinchun Shen, mw24258@bristol.ac.uk, PinChuns
 
+Chih Hsien Ho, cindy062689@gmail.com, Cindy626
+
 Cyunwun lin, cyunwunlin@gmail.com, CarminaTW
+
+
